@@ -56,6 +56,21 @@ Early adopters have the chance to be part of an ambitious, groundbreaking moveme
 
 Call to Action
 Join us as we take SEND to extraordinary heights—support the vision and HODL for long-term success!
+
+https://pump.fun/coin/4opkAQLiwyVN7G5qKrJENpnZaxYsBjXCSu88ZE88pump
+
+https://x.com/ILLConduct
+
+https://t.me/SENDtheMEMECOIN
+
+https://dexscreener.com/solana/5yk4gyzjcpnujcedhhdnlufiuvclurd4wrm9rv5ybn28
+
+https://www.tiktok.com/@highflyingcolefreeman
+
+4opkAQLiwyVN7G5qKrJENpnZaxYsBjXCSu88ZE88pump
+
+
+
 <!---
 colesend/colesend is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
